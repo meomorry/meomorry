@@ -1,5 +1,5 @@
 > [!CAUTION] 
-> sturgeon??? would NOT trust this guy w a scalpel!!
+> sturgeon??? would NOT trust this guy w a scalpel.
 
 ***
 <p align="center">
